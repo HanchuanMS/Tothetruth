@@ -1,10 +1,2 @@
 # Tothetruth
-PLEASE FIND OUT THE TRUTH
-
-Where is the truth? Maybe you should ***ask*** "someone". :-)
-
-...or HACK "someone".
-
-Remember, "Tothetruth".
-
-Tothetruth.
+VUV4RlFWTkZJRVpKVGtRZ1QxVlVJRlJJUlNCVVVsVlVTQXBYYUdWeVpTQnBjeUIwYUdVZ2RISjFkR2cvSUUxaGVXSmxJSGx2ZFNCemFHOTFiR1FnWVhOcklDSnpiMjFsYjI1bElpNGdPaTBwQ2k0dUxtOXlJRWhCUTBzZ0luTnZiV1Z2Ym1VaUxpQW9RV04wZFdGc2JIa2diRzluYVc0Z2MyOXRaVzl1WlNCb1lXaGhhR0VwQ2xKbGJXVnRZbVZ5TENBaVZHOTBhR1YwY25WMGFDSXVDbFJ2ZEdobGRISjFkR2d1
